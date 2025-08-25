@@ -1,0 +1,1 @@
+# curriculo-e-linkedin
